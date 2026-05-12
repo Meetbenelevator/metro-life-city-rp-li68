@@ -1,4 +1,4 @@
-#  
+#  updated metro life city rp Scripts is the best metro life city rp Script, featuring instant win and god mode. Safe and powerful for all your needs.
 
 
 
